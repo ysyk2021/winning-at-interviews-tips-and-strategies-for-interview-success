@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 In conclusion, job interviews can be nerve-wracking experiences, but with the right preparation and strategies, you can increase your chances of success. In this book, we have explored various tips and strategies for interview success. Here is a summary of key points:
 
 * Chapter 1: Preparing for Your Interview: Understanding Yourself
