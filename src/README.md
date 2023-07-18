@@ -8,5 +8,4 @@ Whether you're a recent graduate looking for your first job or an experienced pr
 
 Let's get started on the path to interview success!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
