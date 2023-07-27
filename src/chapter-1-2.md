@@ -48,7 +48,7 @@ In this chapter, we address various interview formats that have become increasin
 
 Chapter 9 focuses on overcoming common interview challenges and learning from feedback. We provide guidance on addressing gaps in experience or qualifications, handling unexpected questions, and responding to rejection. You will learn how to turn setbacks into opportunities for growth and improvement.
 
-10. Chapter 10: The Final Steps: Follow-Up and Negotiation
+10\. Chapter 10: The Final Steps: Follow-Up and Negotiation
 ----------------------------------------------------------
 
 In the final chapter, we explore the critical steps after the interview. We discuss effective follow-up strategies, including thank-you notes and post-interview communication. Additionally, we provide guidance on salary negotiation and evaluating job offers, ensuring you maximize your opportunities and make informed decisions.
