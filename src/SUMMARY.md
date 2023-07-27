@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [The importance of mastering interview skills in career success](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Preparing for Your Interview](chapter-2.md)
   - [Researching the company and position](chapter-2-1.md)
   - [Understanding the job requirements and responsibilities](chapter-2-2.md)
