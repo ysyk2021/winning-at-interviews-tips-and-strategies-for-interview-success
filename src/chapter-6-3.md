@@ -3,7 +3,7 @@ Chapter X: Nonverbal Communication Tips
 
 In this chapter, we will explore the importance of nonverbal communication during interviews and provide tips and strategies to help you utilize it effectively. Nonverbal cues play a significant role in creating a positive impression and conveying your confidence and professionalism to the interviewer. These tips will assist you in harnessing the power of nonverbal communication to enhance your interview success.
 
-1. Body Language
+1\. Body Language
 ----------------
 
 **a. Posture**: Maintain an upright and relaxed posture throughout the interview. Sit up straight, but not rigidly so, as it demonstrates attentiveness and engagement.
@@ -14,7 +14,7 @@ In this chapter, we will explore the importance of nonverbal communication durin
 
 **d. Facial Expressions**: Be conscious of your facial expressions, as they reveal emotions and attitudes. Smile genuinely when appropriate, and display active listening through nods and appropriate reactions.
 
-2. Appearance
+2\. Appearance
 -------------
 
 **a. Dress Professionally**: Dress appropriately for the interview, adhering to the company's dress code or opting for formal attire. Your appearance should reflect the level of professionalism associated with the position.
@@ -23,7 +23,7 @@ In this chapter, we will explore the importance of nonverbal communication durin
 
 **c. Body Odor**: Take care to maintain good personal hygiene and wear a subtle amount of fragrance or deodorant. Strong smells can be distracting and create a negative impression.
 
-3. Voice and Speech
+3\. Voice and Speech
 -------------------
 
 **a. Tone and Volume**: Speak with a steady and confident tone, using an appropriate volume. Avoid speaking too softly or loudly, as it may hinder effective communication.
@@ -32,14 +32,14 @@ In this chapter, we will explore the importance of nonverbal communication durin
 
 **c. Avoid Fillers**: Minimize the use of filler words such as "um," "like," and "you know." These can detract from your message and indicate a lack of confidence or preparation.
 
-4. Handshake
+4\. Handshake
 ------------
 
 **a. Firmness**: Offer a firm handshake when greeting the interviewer. It demonstrates confidence and professionalism. However, be cautious not to overdo it, as an overly aggressive handshake can be off-putting.
 
 **b. Eye Contact**: Maintain eye contact while shaking hands, acknowledging the other person respectfully. A handshake accompanied by eye contact shows sincerity and engagement.
 
-5. Timing and Pacing
+5\. Timing and Pacing
 --------------------
 
 **a. Listen Carefully**: Demonstrate active listening skills by paying attention to the interviewer's questions and comments. Give them time to finish speaking before responding, ensuring your responses are thoughtful and relevant.

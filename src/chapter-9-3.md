@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Negotiating Benefits and Perks
+Strategies for Negotiating Benefits and Perks
 ========================================================
 
 In this chapter, we will explore effective strategies for negotiating benefits and perks during the interview process. Securing desirable benefits and perks is an essential aspect of overall job satisfaction and can significantly impact your overall compensation package. By utilizing these strategies, you can improve your chances of obtaining the benefits and perks that align with your needs and enhance your overall job satisfaction.
