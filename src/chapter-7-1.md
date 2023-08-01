@@ -44,7 +44,7 @@ Follow these tips to ensure your thank-you notes and follow-up emails have a pos
 
 **Thank-You Note:**
 
-    Copy CodeDear [Interviewer's Name],
+    Dear [Interviewer's Name],
 
     I wanted to express my sincere gratitude for the opportunity to interview for the [position] at [Company]. I thoroughly enjoyed our conversation and gained valuable insights into the role and the company's dynamic culture.
 
@@ -57,7 +57,7 @@ Follow these tips to ensure your thank-you notes and follow-up emails have a pos
 
 **Follow-Up Email:**
 
-    Copy CodeSubject: Following up on the [Position] Interview
+    Subject: Following up on the [Position] Interview
 
     Dear [Interviewer's Name],
 
