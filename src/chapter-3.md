@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Personal Brand
-=======================================
 
 In this chapter, we'll explore the importance of crafting a strong personal brand for success during an interview. A well-defined personal brand can help you stand out from other candidates and communicate your unique value proposition to potential employers.
 

@@ -1,4 +1,3 @@
-# Introduction
 
 Job interviews can be a challenging experience, even for the most confident and experienced professionals. However, with the right tips and strategies, you can approach interviews with confidence and improve your chances of success.
 

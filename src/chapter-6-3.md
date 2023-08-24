@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================
 
 In this chapter, we will explore the importance of nonverbal communication during interviews and provide tips and strategies to help you utilize it effectively. Nonverbal cues play a significant role in creating a positive impression and conveying your confidence and professionalism to the interviewer. These tips will assist you in harnessing the power of nonverbal communication to enhance your interview success.
 

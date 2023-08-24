@@ -1,5 +1,3 @@
-Commonly asked questions about your background and experience
-==============================================================================================================
 
 During the interview process, you'll likely be asked a range of questions about your background and experience. These questions are designed to help the interviewer get a better understanding of your qualifications and whether you're a good fit for the position. In this chapter, we'll explore some commonly asked questions about your background and experience, and provide tips for answering them effectively.
 

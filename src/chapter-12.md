@@ -1,5 +1,3 @@
-Chapter 12: Creating Your Own Interview Preparation Plan
-========================================================
 
 Creating a personalized interview preparation plan can be extremely helpful to increase your chances of success. In this chapter, we will explore techniques for identifying strengths and weaknesses, developing a personalized interview preparation plan, and cultivating a winning mindset, confidence, and adaptability.
 

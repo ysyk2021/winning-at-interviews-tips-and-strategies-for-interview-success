@@ -1,5 +1,3 @@
-Understanding the Causes of Interview Anxiety
-======================================================
 
 In this chapter, we will delve into the various causes of interview anxiety. By understanding the factors that contribute to this common phenomenon, you can better address and overcome interview-related nervousness.
 

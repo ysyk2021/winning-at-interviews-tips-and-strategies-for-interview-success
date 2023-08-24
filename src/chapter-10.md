@@ -1,5 +1,3 @@
-Chapter 10: Mastering Nonverbal Communication
-=============================================
 
 Mastering nonverbal communication is a key component of interview success. In this chapter, we will explore techniques for reading and interpreting body language, controlling your own nonverbal cues, and creating a positive first impression.
 

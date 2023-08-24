@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================
 
 In this chapter, we will explore the importance of crafting a compelling elevator pitch and provide strategies for creating an impactful introduction that grabs the interviewer's attention. An elevator pitch is a concise and persuasive summary of who you are, your skills, and what you can bring to the table. It should be delivered within the duration of an elevator ride, typically around 30 seconds to two minutes.
 

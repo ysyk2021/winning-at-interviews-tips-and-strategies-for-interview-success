@@ -1,5 +1,3 @@
-Building Confidence in Your Interview Skills
-=====================================================
 
 In this chapter, we will explore strategies and techniques to build confidence in your interview skills. By enhancing your self-assurance, you can present yourself effectively, make a positive impression, and increase your chances of interview success.
 

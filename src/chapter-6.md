@@ -1,5 +1,3 @@
-Chapter 6: Communicating Effectively During the Interview
-=========================================================
 
 In this chapter, we'll explore strategies for effective communication during an interview. Effective communication involves both speaking clearly and actively listening to the interviewer's questions and feedback.
 

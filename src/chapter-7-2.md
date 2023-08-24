@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-================================================================
 
 Securing a job offer often requires staying top-of-mind with hiring managers throughout the entire interview process. This chapter will explore effective strategies to help you remain memorable and leave a lasting impression on hiring managers. By implementing these tactics, you can increase your chances of interview success and maintain a competitive edge.
 

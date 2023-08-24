@@ -1,5 +1,3 @@
-Chapter 7: Following Up After the Interview
-===========================================
 
 In this chapter, we'll explore strategies for following up after an interview. Following up can help demonstrate your interest in the position and keep you top-of-mind with the hiring manager.
 

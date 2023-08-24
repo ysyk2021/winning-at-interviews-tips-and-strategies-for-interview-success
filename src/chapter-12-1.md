@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses
-===================================================================================================
 
 To succeed in an interview, it's essential to prepare thoroughly. One of the key steps in interview preparation is identifying your strengths and weaknesses and developing a plan to address them. In this chapter, we'll explore how to create your own interview preparation plan, so you can showcase your strengths and mitigate your weaknesses during the interview.
 

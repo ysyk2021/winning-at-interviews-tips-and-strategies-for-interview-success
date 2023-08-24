@@ -1,5 +1,3 @@
-Chapter 11: Overcoming Interview Anxiety
-========================================
 
 Interview anxiety is a common experience for job seekers, but it can be particularly challenging to manage during the interview process. In this chapter, we will explore strategies for overcoming interview anxiety to help you feel more confident and successful in your next job interview.
 

@@ -1,5 +1,3 @@
-Techniques for Managing and Reducing Anxiety
-======================================================================================
 
 Interview anxiety is a common experience for many job seekers. However, if it's not addressed, it can negatively impact your performance during the interview and even cost you the opportunity to land the job. In this chapter, we'll explore techniques for managing and reducing interview anxiety so that you can be fully present and confident during the interview.
 

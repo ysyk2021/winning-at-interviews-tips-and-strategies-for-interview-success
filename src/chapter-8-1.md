@@ -1,5 +1,3 @@
-Phone and Video Interviews
-===================================
 
 In this chapter, we will explore the nuances of phone and video interviews, which have become increasingly common in today's job market. These types of interviews present unique challenges and require specific strategies for success. Whether you are participating in a preliminary phone screening or a full-fledged video interview, this chapter will provide you with tips and techniques to make a positive impression and maximize your chances of moving forward in the hiring process.
 

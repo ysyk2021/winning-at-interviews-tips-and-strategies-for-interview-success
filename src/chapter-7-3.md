@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-============================================
 
 Rejection is an inevitable part of the job search process. While it can be disheartening, it's essential to handle it with resilience and maintain a positive mindset. This chapter will provide guidance on what to do if you don't get the job, helping you navigate through disappointment and move forward towards future interview success.
 

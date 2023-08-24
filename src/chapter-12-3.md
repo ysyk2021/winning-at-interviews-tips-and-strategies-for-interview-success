@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-====================================================================
 
 In this chapter, we will explore the importance of cultivating a winning mindset, building confidence, and developing adaptability to succeed in interviews. These key attributes will not only enhance your performance but also increase your chances of securing a job offer.
 

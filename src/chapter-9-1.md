@@ -1,5 +1,3 @@
-Understanding the salary negotiation process
-========================================================================================
 
 Salary negotiation is an important part of the job search process. However, many candidates feel uncomfortable negotiating their salary or are unsure about how to approach it. In this chapter, we'll explore the salary negotiation process and provide tips for successfully negotiating your salary and benefits.
 

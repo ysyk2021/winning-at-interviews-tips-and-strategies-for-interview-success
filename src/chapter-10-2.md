@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-============================================
 
 In this chapter, we will explore the significance of nonverbal cues during interviews and discuss strategies for effectively controlling and utilizing them to your advantage.
 

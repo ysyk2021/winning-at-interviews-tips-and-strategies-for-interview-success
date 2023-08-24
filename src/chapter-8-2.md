@@ -1,5 +1,3 @@
-Group Interviews
-=========================
 
 In this chapter, we will explore the dynamics and strategies involved in group interviews. Group interviews, also known as panel interviews or multiple candidate interviews, are conducted with multiple candidates being evaluated simultaneously by a panel of interviewers. This format allows employers to observe how candidates interact, collaborate, and perform in a group setting. To succeed in a group interview, it is essential to understand the unique dynamics of this format and employ effective strategies. This chapter will provide you with the necessary tips and techniques to excel in group interviews.
 

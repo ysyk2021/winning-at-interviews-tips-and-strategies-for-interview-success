@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-=============================================
 
 In this chapter, we will explore the importance of creating a positive first impression during interviews. We will discuss strategies and tips that can help you make a lasting impact from the moment you walk into the room.
 

@@ -1,5 +1,3 @@
-Chapter 4: Answering Common Interview Questions
-===============================================
 
 In this chapter, we'll explore commonly asked interview questions and provide tips for answering them effectively to increase your chances of interview success.
 
